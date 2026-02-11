@@ -1,2 +1,2 @@
 # github.io
-Hello everyone, I am Mike Min. I was former student of Harrington Park school and basketball champions of 2012~2013 season. I graduated Daewang Middle School, Jungsan High School in Seoul, South Korea. I have B.S. degrees of mechanical engineering in Hanyang University, and currently M.S. stuend in Hanyang University.
+Hello everyone, I am Mike Min. I was former student of Harrington Park school and basketball champions of 2012~2013 season. I graduated Daewang Middle School, Jungsan High School in Seoul, South Korea. I have B.S. deegrees of mechanical engineering from Hanyang University. I am currently at M.S. courses at Department of Convergence Mechanical Engineering in Hanyang Unviersity, Seoul, Republic of Korea.
